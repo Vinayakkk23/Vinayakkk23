@@ -12,7 +12,8 @@
 
 - 📫 How to reach me **kumar.vinayak1988@gmail.com**
 
-- 📄 Resume Link: [https://drive.google.com/file/d/1gORz3A-fE0ycvs2jRMUTKC_g-Q49BI0d/view?usp=drive_link](https://drive.google.com/file/d/1gORz3A-fE0ycvs2jRMUTKC_g-Q49BI0d/view?usp=drive_link)
+- 📄 Resume Link: [Google Drive Link: ](https://drive.google.com/file/d/1YmgIhxykzkP-6ZBhrvDjhVDTmzDuBxkp/view?usp=drive_link)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
